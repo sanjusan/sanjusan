@@ -6,4 +6,4 @@ stuff i do 👇
 
 building 👷‍♀️
   - **daytime**: reputation for machines @Rated Labs
-  - **else**: mini games onchain
+  - **else**: tools using crypto+ai
