@@ -1,6 +1,4 @@
-## Hi there 👋
-
-Call me sm. 
+Hi! Call me sm. 
 
 stuff i do 👇
 - **daytime**: product.
