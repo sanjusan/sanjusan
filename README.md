@@ -1,7 +1,7 @@
-Hi! Call me sm. 
+Hi! Call me **sm** 
 
 stuff i do 👇
-- **daytime**: product.
+- **daytime**: product
 - **else**: r/wallstreetbets, play video games (most recently, heavenly bodies) and use claude to build stuff
 
 building 👷‍♀️
