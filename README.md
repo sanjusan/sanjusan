@@ -1,9 +1,9 @@
 Hi! Call me **sm** 
 
 stuff i do 👇
-- **daytime**: product
-- **else**: r/wallstreetbets, play video games (most recently, heavenly bodies) and use claude to build stuff
+- **daytime**: product @ratedw3b
+- **else**: r/wallstreetbets, play video games (most recently, stardew valley 🎣) and work w/ o1 to write me code
 
 building 👷‍♀️
   - **daytime**: reputation for machines @Rated Labs
-  - **else**: tools using crypto+ai
+  - **else**: random stuff using crypto/ai
