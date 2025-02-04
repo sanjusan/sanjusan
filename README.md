@@ -2,7 +2,7 @@ Hi! Call me **sm**
 
 stuff i do 👇
 - **daytime**: product @ratedw3b
-- **else**: r/wallstreetbets, play video games (most recently, stardew valley 🎣) and work w/ o1 to write me code
+- **else**: r/wallstreetbets, play video games (most recently, stardew valley 🎣) and vibe code on cursor (not productivity advice)
 
 building 👷‍♀️
   - **daytime**: reputation for machines @Rated Labs
